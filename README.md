@@ -1,6 +1,8 @@
 # Course2ManyBodyMethods
 This website contains the material pertinent to the nuclear TALENT course, see www.nucleartalent.org for more information, on Many-Body methods for nuclear physics. The present material is for the course to be held at GANIL, Caen, France from July 5 to July 25 in 2015.
 
+scene from Serial film: 3 body method  1 season, 2 epizode and I had cut from 6 to 13 minut; untill that final 🥌 cut  
+
 https://youtu.be/SNmVRFBQJZI
 
 <img width="1037" height="698" alt="image" src="https://github.com/user-attachments/assets/0af2fe68-5f87-467f-9bed-e0e162767511" />
