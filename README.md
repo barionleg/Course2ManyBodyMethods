@@ -3,6 +3,22 @@ This website contains the material pertinent to the nuclear TALENT course, see w
 
 scene from Serial film: 3 body method  1 season, 2 epizode and I had cut from 6 to 13 minut; untill that final 🥌 cut  
 
+♃_43_☀_Sun_🌏_
+38  8
+ \ /
+  🌏
+
+
+  Sun to Earth 8 minute
+  so Jupiter to Sun to Earth 43+8=51minute
+  Jupiter to Earth 38 minute
+
+  differance Jupiter_Earth  & Jupiter_Sun_Earth = 13 min
+
+  So Sun reflex 📶 signals and like I research it records and after send to Yttre Station (Outher Station like I know from my father)
+
+  I even think, that are ossible that our [SPACE SHIP](https://github.com/aibolem/spacekit/wiki/narsol) see that [link](https://aibolem.github.io/spacekit/examples/nearest_solar/index.html) and this [wiki Narsol](https://github.com/aibolem/spacekit/wiki/narsol), so Nearest Solar Systems are part of our Artificial SpaceCraft and also probably Emergency Lightning are possible, maded by Old_Humans our GranParant_Grounders, because are neccecery to knew all dialects and languages I knew, wich proably was pushed to my head by my GrandParants. Look example on simple 🔭 Telescope. If you can Physic Chemie d'wårginal Pycckuü or ₽_Russian, you will get that it are also Telescore (ТеЛескоРех <reversalt> XeRokceleT), and who counts how many Univæsaliskt mennings I find out ... but leider 0 intresse by side of ACAdEMbOuRg bewoners ... How long my enthusiasm will enougth? 
+
 https://youtu.be/SNmVRFBQJZI
 
 <img width="1037" height="698" alt="image" src="https://github.com/user-attachments/assets/0af2fe68-5f87-467f-9bed-e0e162767511" />
