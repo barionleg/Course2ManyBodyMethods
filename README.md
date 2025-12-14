@@ -12,11 +12,15 @@ scene from Serial film: 3 body method  1 season, 2 epizode and I had cut from 6 
 
 ```
 
+
+```
   Sun to Earth 8 minute
   so Jupiter to Sun to Earth 43+8=51minute
   Jupiter to Earth 38 minute
 
   differance Jupiter_Earth  & Jupiter_Sun_Earth = 13 min
+
+```
 
   So Sun reflex 📶 signals and like I research it records and after send to Yttre Station (Outher Station like I know from my father)
 
