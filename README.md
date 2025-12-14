@@ -8,6 +8,13 @@ scene from Serial film: 3 body method  1 season, 2 epizode and I had cut from 6 
  \ /
   🌏
 
+```
+♃_43_☀_Sun_🌏_
+38  8
+ \ /
+  🌏
+
+```
 
   Sun to Earth 8 minute
   so Jupiter to Sun to Earth 43+8=51minute
