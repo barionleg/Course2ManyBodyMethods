@@ -10,6 +10,8 @@ even when I split a bit of 📼 film, häppends strange things, I able to start 
 
 <img width="1366" height="768" alt="Skärmbild 2025-12-14 124419" src="https://github.com/user-attachments/assets/69a8366a-0ee3-4437-9641-054ea111c2f6" />
 
+___
+___
 
 https://barionleg.github.io/Course2ManyBodyMethods/doc/web/course.html
 
