@@ -3,10 +3,6 @@ This website contains the material pertinent to the nuclear TALENT course, see w
 
 scene from Serial film: 3 body method  1 season, 2 epizode and I had cut from 6 to 13 minut; untill that final 🥌 cut  
 
-♃_43_☀_Sun_🌏_
-38  8
- \ /
-  🌏
 
 ```
 ♃_43_☀_Sun_🌏_
